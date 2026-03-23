@@ -1,3 +1,2 @@
 # kundali-app
-This is my upcomming project..!!
-YOLO final test 🚀
+YOLO final test 🚀🔥
