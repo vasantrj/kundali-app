@@ -1,2 +1,2 @@
 # kundali-app
-YOLO final test 🚀🔥
+This is my new repo..
